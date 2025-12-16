@@ -1,2 +1,3 @@
 # Certification
-My Certification
+Professional certifications and credentials
+
